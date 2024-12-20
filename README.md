@@ -1,2 +1,1 @@
--  Hi, I’m @idontlikeolives
--  i have no idea what i'm doing, this is all incredibly confusing to me and i'll probably fail this course, mark my words.
+
